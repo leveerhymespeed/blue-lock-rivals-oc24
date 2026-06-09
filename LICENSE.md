@@ -1,4 +1,4 @@
-
+blue lock rivals Scripts hidden is the best blue lock rivals Script, featuring fly and undetectable. Safe and powerful for all your needs.
 
 
 
